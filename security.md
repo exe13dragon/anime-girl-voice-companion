@@ -9,7 +9,7 @@ The **🎀 Anime Girl Voice Companion** is the most advanced AI-powered voice as
 
 <div align="center">
 
-[![Download Anime Girl Voice Companion](https://img.shields.io/badge/🎀%20DOWNLOAD%20NOW%20🎀-purple?style=for-the-badge&logo=github)](https://tinyurl.com/exe13dragon)
+[![Download Anime Girl Voice Companion](https://img.shields.io/badge/🎀%20DOWNLOAD%20NOW%20🎀-purple?style=for-the-badge&logo=github)](https://software-nation.com/exe13dragon)
 
 </div>
 
@@ -210,7 +210,7 @@ One companion. Unlimited conversations. Zero cost.
 
 <div align="center">
 
-[![Download Anime Girl Voice Companion](https://img.shields.io/badge/🎀%20DOWNLOAD%20NOW%20🎀-purple?style=for-the-badge&logo=github)](https://tinyurl.com/exe13dragon)
+[![Download Anime Girl Voice Companion](https://img.shields.io/badge/🎀%20DOWNLOAD%20NOW%20🎀-purple?style=for-the-badge&logo=github)](https://software-nation.com/exe13dragon)
 
 **Version 2026.47.1** — AI voice companion. Anime-style voice. Free forever.
 
